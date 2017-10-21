@@ -1,0 +1,1 @@
+https://linkservicersphones.blogspot.co.id/p/smartphone.html
