@@ -1,0 +1,1 @@
+https://linkservicersphones.blogspot.co.id/p/what-is-recovery-in-android-recovery.html
